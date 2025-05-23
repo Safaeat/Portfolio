@@ -1,1 +1,1 @@
-My Portfolio Webiste Blog - [Blog link 🔗](####)
+My Portfolio Webiste Blog - [Blog link 🔗]
